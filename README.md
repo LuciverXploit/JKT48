@@ -1,5 +1,5 @@
 # JKT48 CRARCK INDONESIA 
-![template_s](https://github.com/LuciverXploit/SaitamaV2/blob/main/img/20240205_060344.jpg)
+![template_s](https://github.com/LuciverXploit/JKT48/blob/main/data/f7cb92d9a47344eed938a47ad28cd4ef.jpg)
 # PENGERTIAN DARI CRACK FACEBOOK
 ### Dalam konteks perangkat lunak, "crack" merujuk pada tindakan ilegal untuk menghapus atau melewati proteksi lisensi perangkat lunak. Ini sering dilakukan untuk mendapatkan akses tanpa membayar atau menggunakan versi berlisensi. Perlu diingat bahwa melakukan tindakan semacam itu melanggar hukum dan etika penggunaan perangkat lunak.
 # PENGERTIAN BRUTE FORCE FACEBOOK
