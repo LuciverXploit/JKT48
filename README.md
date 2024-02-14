@@ -1,3 +1,5 @@
+# LUCIVERXPLOIT TIDAK AKAN MENGKONFIRMASI JIKA BELUM FOLLOW GITHUB DAN MEMBERIKAN NILAI
+### supaya gua semangat follow guys,gua cape bikin ya follow dulu ☺️
 # JKT48 CRARCK INDONESIA 
 ![template_s](https://github.com/LuciverXploit/JKT48/blob/main/data/f7cb92d9a47344eed938a47ad28cd4ef.jpg)
 # PENGERTIAN DARI CRACK FACEBOOK
